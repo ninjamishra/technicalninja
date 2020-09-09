@@ -1,2 +1,0 @@
-# technicalninja
-Learning
